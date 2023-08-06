@@ -1,0 +1,1 @@
+# heikenAshi-Smoothed
